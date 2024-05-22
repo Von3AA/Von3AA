@@ -1,0 +1,4 @@
+- ### Boas vindas ao meu perfil 🌷💙
+- Meu nome é Karolayne fernandes
+- estou estudando na alura
+- 
